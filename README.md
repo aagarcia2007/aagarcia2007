@@ -12,5 +12,4 @@ Busco dejar una huella en e mundo y dar
 Mi plan es especializarme en el area de la investigacion sobre tecnicas de medicina personalizada.
 Creo que la gente merece poder vivir por su cuenta con una calidad de vida digna, sobre todo en la vejez.
 Me encanta nadar y el ejercicio en general.
-
-
+🌐 🧬
